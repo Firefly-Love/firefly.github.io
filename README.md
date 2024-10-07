@@ -8,12 +8,24 @@
 
 <img src="1.png" alt="1" style="zoom:25%;" />
 
-## EP002 小米红米root
+## EP003 小米红米root
 
 小米/红米root工具：[https://www.123pan.com/s/wXYyVv-AKbwh?](https://www.123pan.com/s/wXYyVv-AKbwh?) 提取码:LY52
+
+
+
+## EP002 Winlator使用
+
+Winlator安装包：[https://www.123pan.com/s/wXYyVv-9ubwh?](https://www.123pan.com/s/wXYyVv-9ubwh?)提取码:LY52
 
 
 
 ## EP001 电脑美化
 
 美化包：[https://www.123pan.com/s/wXYyVv-QKbwh?](https://www.123pan.com/s/wXYyVv-QKbwh?)提取码:LY52
+
+
+
+## EP000 魔法环境
+
+Win/安卓：[https://www.123pan.com/s/wXYyVv-Hubwh?](https://www.123pan.com/s/wXYyVv-Hubwh?)提取码:LY52
